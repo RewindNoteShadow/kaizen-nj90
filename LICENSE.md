@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with kaizen best Scripts, the #1 Script. Includes aimbot and teleport for unbeatable performance.
 
 
 
